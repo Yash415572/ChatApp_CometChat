@@ -1,3 +1,8 @@
+```sh
+PDF_Download:  https://drive.google.com/file/d/1kNo2td89EZ7fH34xBO2iRh-hMQ2fzpr2/view?usp=sharing
+```
+ 
+ 
  ```sh
 Video Link - https://youtu.be/KOQNIEs9edk?si=FlLc3qZwXjTgrewV
 ```
